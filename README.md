@@ -1,8 +1,3 @@
-# Cristian Alberto Ledesma Fernández
-
-**Email:** cristianledezmafernandez@gmail.com  
-**LinkedIn:** [Cristian Ledesma Fernández](https://www.linkedin.com/in/cristianledesmafernandez/)  
-
 ---
 
 ## Sobre mí
